@@ -1,0 +1,1 @@
+"In reality, the Wikipedia Foundation is doing just fine. In fact, they make so much money from donations, they spend (read: waste) massive amounts of it on various social ventures instead of using it on the service that caused people to donate in the first place."
